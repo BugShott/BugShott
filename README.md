@@ -24,11 +24,15 @@ $\color{#cfc1ae}{\textsf{ sign straw :)　 }}$<br>
   --------
   <details>
 
-<summary>Pony stuff idk </summary>
+<summary>pony / inspo | copy </summary>
 
 if taking inspo from me Ask permission and also
 Do NOT rightly copy my ponies/skin I made them by all Myself NOT meant to be copied at all. 
 
 </details>
-
+  <br>
+          <br>
+      </td>
+    </tr>
+  </table>
   
