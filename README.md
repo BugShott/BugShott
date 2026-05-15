@@ -10,8 +10,8 @@
 
 $\color{#cfc1ae}{\textsf{   　vellas　　　Jazy　  　　 }}$<br>
 $\color{#cfc1ae}{\textsf{ she/they }}$<br>
-$\color{#538ab8}{\textsf{    　　 　c+h — enc 　/ int plz　　 　　　  }}$<br>
-$\color{#538ab8}{\textsf{  　　　　 actively  }}$
+$\color{#c7c3bb}{\textsf{    　　 　c+h — enc 　/ int plz　　 　　　  }}$<br>
+$\color{#c7c3bb}{\textsf{  　　　　 actively  }}$
 $\color{#cfc1ae}{\textsf{ hai : )  }}$<br>
 <br>
 <br>
@@ -24,10 +24,12 @@ $\color{#cfc1ae}{\textsf{ sign straw :)　 }}$<br>
   --------
   <details>
 
-<summary>pony / inspo | copy </summary>
+<summary>pony / inspo | copy boundaries idk Wtv is this </summary>
 
-if taking inspo from me Ask permission and also
-Do NOT rightly copy my ponies/skin I made them by all Myself NOT meant to be copied at all. 
+asking —  inspo first please in my strawpage only since I don't have access to my at a book. 
+copying my ponies by calming is yours IS an big no. because my ponies aren't use to be copied. and used. 
+
+
 
 </details>
   <br>
