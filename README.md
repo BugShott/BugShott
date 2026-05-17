@@ -26,7 +26,7 @@ $\color{#cfc1ae}{\textsf{ sign straw :)　 }}$<br>
 
 <summary>pony / inspo | copy boundaries idk Wtv is this </summary>
 
-asking —  inspo first please in my strawpage only since I don't have access to my at a book. 
+asking —  inspo first please ask in my strawpage only since I don't have access to my ata book. 
 copying my ponies by calming is yours IS an big no. because my ponies aren't use to be copied. and used. 
 
 
