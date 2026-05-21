@@ -1,9 +1,9 @@
 
 
-<div < align="center">   　　  <img width="300" height="400" alt="1000014109" src="https://github.com/user-attachments/assets/1d207899-0978-4ae1-8f1a-3d68ef45957d" />
+<div < align="center">   　　  <img width="300" height="400" alt="1000014109" src="https://github.com/user-attachments/assets/1d207899-0978-4ae1-8f1a-3d68ef45957d" /> 　　
 
  　　　　　 　　 　　　　　 
-<br>
+<br> <a href="https://hits.sh/GitHub.com/ssunweaver/hits/"><img alt="Hits" src="https://hits.sh/GitHub.com/ssunweaver/hits.svg?style=plastic&label=Planet%20lords&extraCount=100&color=060707&labelColor=9256af&logo=Github"/></a>
 <br>
   <table>
     <tr>
